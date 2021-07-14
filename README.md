@@ -1,0 +1,2 @@
+# postgraduate-D56
+Today is the last day of the exam. I'm really tired. I don't have a day off. After the exam, I come to the library to study. Our school is not a special one. I don't know what other schools are like. Today, I recited the wireless sensor test before the exam. I didn't expect that all the test questions were homework questions, The embedded test in the afternoon is really difficult. I don't know what to say. I don't study all day. I really want to have a good rest.
